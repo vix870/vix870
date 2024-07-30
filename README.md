@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vix870
+- 🌱 I’m currently learning jave, python, etc.
+- 📫 How to reach me 00001114930829sp@al.educacao.sp.gov.br
+- 😄 Pronouns: any
+- ⚡ Fun fact: i´m a furry LOL
